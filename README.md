@@ -1,2 +1,2 @@
 # andrewthoughts
-"infrequent" deep thoughts
+"infrequent" deep thoughts - http://www.andrewthoughts.com/
